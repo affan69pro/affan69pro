@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me😑
 - 😄 Pronouns: i am good at badminton🎾
-- ⚡ Fun fact: my sister is fat
+- ⚡ Fun fact:i am 11 years old
 
 <!---
 affan69pro/affan69pro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
